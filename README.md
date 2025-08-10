@@ -1,4 +1,4 @@
-now I am pasting this chat from starting please memorize and summarize all details that I have provided to you 
+
 
 I want to take part in a hackathon and I have to win it at any cost because I am in great need of money 
 I am giving you each and every details of the hackathon just go through it and remember each and every point because you have to help me in building my project don't reply until I am finished giving you with all the details.Go through every details and documentation. 
